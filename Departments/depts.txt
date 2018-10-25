@@ -1,0 +1,13 @@
+Departments here are-
+(1) Computer Science and Engineering
+(2) Mathematical Sciences
+(3) Electrical Engineering
+(4) Electronics Engineering
+(5) Mechanical Engineering
+(6) Civil Engineering
+(7) Chemical Engineering
+(8) Ceramics
+(9) Applied Sciences
+(10) Pharmaceutical Engineering
+(11) Metallurgical Engineering
+(12) Mining Engineering
