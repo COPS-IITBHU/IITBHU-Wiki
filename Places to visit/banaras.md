@@ -1,0 +1,3 @@
+assi ghat
+waterfall
+sarnath
