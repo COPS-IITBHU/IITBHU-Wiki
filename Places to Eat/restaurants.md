@@ -1,0 +1,2 @@
+satkar
+capsicum
