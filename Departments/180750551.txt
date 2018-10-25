@@ -1,0 +1,1 @@
+IIT BHU has departments CSE,EE,Electronics,Mechanical,Civil,Ceramic,Mining,Meta,Pharma,Biomedical.
