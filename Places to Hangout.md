@@ -1,0 +1,1 @@
+There is no better place than Mangi Ferra at Hostel Surya in Varanasi, the staff is great and the ambiance is cool, the new Menu is wonderful and its definitely my favorite joint to unwind with some great music and friends, I definitely recommend this place to all visiting or staying in Varanasi, the owners are always around to give it a personal touch
