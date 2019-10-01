@@ -1,4 +1,4 @@
 ## My Dept
-electronics engineering,cse,electrical engineering,civil engineering
+electronics engineering,cse,electrical engineering,civil engineering,chemical engineering
 
 
