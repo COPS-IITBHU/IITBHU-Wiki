@@ -1,0 +1,7 @@
+Departments:
+computer science dept.
+electronics
+electrical
+mechanical
+mettalurgy
+mining
