@@ -1,0 +1,2 @@
+gamcha
+sab lite hai
